@@ -1,1 +1,5 @@
-# Replace this with a list of your favorite things.
+# Facultad de Ingenieria Electromecanica.
+
+:sparkles: Graduation.
+:heart: HENM.
+:+1: I like this city (San Felipe) 
