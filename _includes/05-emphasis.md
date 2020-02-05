@@ -1,2 +1,6 @@
 # Universidad de Colima :heart:
-:smile:
+* Ever Real :smile:
+* Never Facke :smile:
+* :palm_tree From Manzanillo, Colima. 
+* i'm bartender.
+* :heart:
